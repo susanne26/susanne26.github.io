@@ -32,6 +32,10 @@ Bog: Klude og Gæstehåndklæder af Karen Klarbæk
 
 [Køleboks til bil fra Koeletaske.dk](https://www.koeletaske.dk/soeg/590171)
 
+Sommerjakke str. M
+
+Ledningsfri støvsuger
+
 
 
 ## Byplaket fra homedec.dk
