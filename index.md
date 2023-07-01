@@ -4,6 +4,8 @@ For at der ikke giver problem med dobbelt fra ting der er købt på net, kan/ska
 
 ## Fra bauhaus
 
+[Euroboks fra Bauhaus str 60x40x22 cm med låg der kan sættes fast](https://www.bauhaus.dk/surplus-systems-eurokasse-euronormbox-600x400x220-mm)
+
 ~[Euroboks fra Bauhaus str 60x40x32 cm med låg der kan sættes fast](https://www.bauhaus.dk/gamma-wopla-euro-opbevaringskasse-60l)~ købt for kontante gaver
 
 ~[2 stk ekstra låg der kan sættes fast til euroboks](https://www.bauhaus.dk/gamma-wopla-laag-topbevaringskasse-eurokasse-60x40cm-inkl-klips)~ købt for kontante gaver
